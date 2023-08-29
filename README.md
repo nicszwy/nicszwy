@@ -10,4 +10,4 @@ Meu nome é Nicole Neuls
 
 - Meu instagram : @nicszwy ☕
 
-![.](https://tenor.com/pt-BR/view/lionel-lionel-messi-messi-goat-gif-25111264)
+![.](https://media.tenor.com/O4uh_wpRe6wAAAAd/lionel-lionel-messi.gif)
